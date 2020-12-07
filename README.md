@@ -1,0 +1,1 @@
+# deep-isekaid-soseki
